@@ -1,1 +1,0 @@
-# AlejandrMendoza.MD
